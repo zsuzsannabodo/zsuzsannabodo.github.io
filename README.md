@@ -1,2 +1,2 @@
 # zsuzsannabodo.github.io
-Official website of Zsuzsanna Bod – PhD student in Theology, Biblical  and Ancient Egyptian Archaeology
+Official research website of Zsuzsanna Bodo – PhD student in Theology, Biblical Archaeology, Ancient Egyptian Religion and Material Culture
